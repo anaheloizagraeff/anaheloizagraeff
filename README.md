@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @anaheloizagraeff
+- 👀 I’m interested in go home
+- 🌱 I’m currently learning how to do games
+- 📫 ig:@anaheloiza_graeff
+- i am 14y old
